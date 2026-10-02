@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @skatewang2005
-- I’m currently learning marine biology, statistics, and Python 😩
+- I am a fourth-year undergraduate at the University of California, Santa Cruz, where I study marine biology and statistics. 
 
 
 
